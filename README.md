@@ -4,7 +4,7 @@
 - I will learn a lot from you, greetings.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on any project that will benefit others.
-- 📫 How to reach me ...
+- 📫 How to reach me: @eei420homie
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I like sports, running, I am passionate about fronton and boxing.
 
